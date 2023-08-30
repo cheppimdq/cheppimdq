@@ -1,1 +1,1 @@
-![NO SE OLVIDEN DE CABEZAS](./cabezs.jpg)
+![NO SE OLVIDEN DE CABEZAS](./cabezas.jpg)
